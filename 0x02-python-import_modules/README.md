@@ -13,4 +13,26 @@ Stay Tuned
 ###############
 ####
 ##
-##########################################
+#########################################
+
+
+
+Always Find time to rest and refresh your brain.
+
+
+Know this::::
+
+Sometimes, All we need to do is get The Pie and Drop the Python..
+
+
+Enjoy the rest of your day
+
+
+~
+~
+~
+~
+~
+~
+~
+#
